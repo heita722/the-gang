@@ -1,2 +1,0 @@
-# the-gang
- The Gang
